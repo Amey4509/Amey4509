@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi i'm AmeyZende
 
 <!--
 **Amey4509/Amey4509** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
